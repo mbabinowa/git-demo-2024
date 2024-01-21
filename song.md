@@ -7,3 +7,6 @@ Painful to me
 Pierce right through me
 Can't you understand?
 Oh, my little girl
+
+All I ever wanted
+All I ever needed
